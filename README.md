@@ -2,7 +2,6 @@
 
 I'm **kene koba** , a totally random guy from Colombia
 
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on work
 - 🌱 I’m currently learning how to learn
