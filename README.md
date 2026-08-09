@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm **kene koba** , a totally random guy from Nigeria
+I'm **kene koba** , a totally random guy from Africa
 
 
 - 🔭 I’m currently working on "my work"
